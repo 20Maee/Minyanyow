@@ -10,7 +10,7 @@ Website resmi Minyanyow — toko aksesoris impor bergaya Korean Style.
 
 ## 🔗 Link Website
 
-Kunjungi: https://<20Maee>.github.io/minyanyow
+Kunjungi: https://20Maee.github.io/minyanyow
 
 ---
 
